@@ -1,6 +1,6 @@
 👋 Hello, I'm Shao
 
-![My Logo](YOUR_IMAGE_LINK_HERE)
+![My Logo](https://files.catbox.moe/wdu3fr.jpg)
 
 🎨 Logo Designer | Creative Artist
 
@@ -18,9 +18,9 @@ I specialize in designing unique, high-quality logos tailored for brands, busine
 ---
 
 📫 Connect With Me:
-- 🌐 [Visit My Portfolio](https://yourwebsite.com)
-- 💌 WhatsApp me: [Click Here](https://wa.me/yourwhatsapplink)
-- 📷 Instagram: [@yourhandle](https://instagram.com/yourhandle)
+- 🌐 [Visit My Portfolio](https://Shaodow.blogspot.com)
+- 💌 WhatsApp me: [Click Here](https://wa.me/255779986379)
+- 📷 Instagram: [@shaolindown](https://instagram.com/shaolindown)
 
 ---
 
