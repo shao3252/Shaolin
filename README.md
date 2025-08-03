@@ -19,7 +19,7 @@ I specialize in designing unique, high-quality logos tailored for brands, busine
 
 📫 Connect With Me:
 - 🌐 [Visit My Website](https://Shaodow.blogspot.com)
-- 💌 WhatsApp me: [Click Here](https://wa.me/255779986379)
+- 💌 WhatsApp me: [Shao](https://wa.me/255779986379)
 - 📷 Instagram: [@shaolindown](https://instagram.com/shaolindown)
 
 ---
